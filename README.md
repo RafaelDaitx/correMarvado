@@ -184,7 +184,7 @@ Para dúvidas relacionadas a esta Política de Privacidade, solicitações sobre
 
 **País:** Brasil
 
-**E-mail para contato:** rafa.daitx.silva@gmail.com
+**E-mail para contato:** Corremarvado@gmail.com
 
 As solicitações relacionadas à privacidade e aos dados pessoais serão analisadas e tratadas conforme a legislação brasileira aplicável, especialmente a Lei Geral de Proteção de Dados Pessoais (LGPD — Lei nº 13.709/2018).
 
